@@ -1,5 +1,9 @@
 # ConsciousnessBrain
 
+Reference
+https://www.amazon.in/dp/B0GBPFFFP1?dplnkId=780230f5-32b7-440f-91a7-799b37005fa4
+
+
 # 🧠 Unified Consciousness Theories Framework
 
 ## Overview
